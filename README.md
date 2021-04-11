@@ -1,1 +1,1 @@
-# Codding imy passion
+# Codding is my passion
