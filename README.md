@@ -1,1 +1,1 @@
-# Codding is my passion
+# An easy template
